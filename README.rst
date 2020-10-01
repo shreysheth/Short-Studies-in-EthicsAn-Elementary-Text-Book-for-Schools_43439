@@ -1,5 +1,5 @@
 =====================
-Short Studies in EthicsAn Elementary Text-Book for Schools
+Short Studies in Ethics : An Elementary Text-Book for Schools
 =====================
 
 
